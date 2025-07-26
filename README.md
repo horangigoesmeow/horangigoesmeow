@@ -10,7 +10,7 @@
 - PLEASE PLEASE PLEASE CUDDLE WITH ME !! i know there migth be no 'c+h' or something like that in my name BUT I REEALLY REALLY ENJOY THE COMPANY !! unless i have like dniuc/cf/f *(sometimes i can be relaly upset)* dntuc/f *(rarely)*
 - i can be ***dry*** *(like really dry)* **whenever i want to** . if that **annoy** ***YOU*** please bear with me , i might be upset or im too lazy to talk *(speaking of an experienced getting called **dry and cold** . pls dont call me that .)*
 - i'm a yapper!... like if **YOU** mentioned my favourite FANDOM! i would yap about it...! sorry if u got tired .. just tell me if u want to talk without me interrupting!
-- pls don't ignore me i have ***attachment issues... and trust issues..*** sorry if u tried to convinve me so bad but i still dont want to trust .. :((
+- pls don't **ignore me** i have ***attachment issues... and trust issues..*** sorry if u tried to convinve me so bad but i still dont want to trust .. :((
 
 **DO NOT INTERACT..**
 
@@ -25,17 +25,4 @@
 - **WEIRD local INDONESIAN.**
 
 ## ***ok bye thats all see u lateri gave up***
-<!--
-**jun-hosglazer/jun-hosglazer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
