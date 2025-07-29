@@ -2,7 +2,7 @@
 
 **BEFORE U INTERACT/INFO ABOUT ME!**
 
-- I RELALY LIKE GETTING CALLED BY MY HVYKINS NAME !!! such as ***megumi/fushiguro*** , ***lo'ak*** , ***kiri*** , **matt** , taph soundwave *(dontreally use this)* , jazz *(rarely hah...)* , 
+- I RELALY LIKE GETTING CALLED BY MY HVYKINS NAME !!! such as ***megumi/fushiguro*** , ***lo'ak*** , ***kiri*** , **matt** , soundwave *(dontreally use this)* , jazz *(rarely hah...)* , 
 - i'll be like really shy or awkward meeting new people... ^_^
 - i'm a socially awkward freak haha..
 - i might said something vulgars like swear words ... and body parts *(not really tthat often)* if that makes u uncomf pls tell me if u are uncomf!
