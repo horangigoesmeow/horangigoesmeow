@@ -15,6 +15,7 @@
 - INTERACT WITH ME !! even if ur shy af...
 - I LOVE GETTING COMPLEMENTED !! such as crowns and pretty!! *(as in pony..)*
 - currently rentry is outdated *(THAT THING IS SO OLD)* so i'll might make it later
+- i might have bpd *(took a quiz of it and i got 50-79..)* and bipolar too *(64-81..)* , adhd *(44-68)* , autism ... *(64-68)*
 
 **DO NOT INTERACT..**
 
@@ -27,6 +28,7 @@
 - doesnt respect someone else **religions..**
 - r34 enjoyrs..
 - **WEIRD local INDONESIAN.**
+- **really** *really* ***sensitive people.***
 
 ## ***ok bye thats all see u lateri gave up***
 
