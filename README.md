@@ -19,9 +19,9 @@
 
 **DO NOT INTERACT..**
 
-- 18 and 18+ people *(unless we're already friends , that's ok!)
+- 18 and 18+ people *(unless we're already friends , that's ok!) (or ur my friend's friend!
 - basic dni criteria *(racism , homophobics , transphobics)*
-- pedoohile
+- pedophile
 - lolicon,. ew
 - pro/com/darkshippers EW,
 - attention seekers
