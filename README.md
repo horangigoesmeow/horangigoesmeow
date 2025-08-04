@@ -17,6 +17,22 @@
 - currently rentry is outdated *(THAT THING IS SO OLD)* so i'll might make it later
 - i might have bpd *(took a quiz of it and i got 50-79..)* and bipolar too *(64-81..)* , adhd *(44-68)* , autism ... *(64-68)* ocd too haha... *(84-100)*
 
+**INT PLS!!!**
+- ***the witcher***
+- **jujutsu kaisen**
+- **the last guest**
+- ***AVATAR!!!*** *(james cameron)*
+- ***BLOCKTALES !!***
+- **forsaken**
+- *bsd*
+- ***SQUID GAME !!!!!***
+- **any roblox games!**
+- *dbh..*
+- ***wcue!!***
+- ***residnet evil***
+- **dead plate**
+- *transformers*
+- ***i feakky forgot the others sm.hn,..h;...***
 **DO NOT INTERACT..**
 
 - 18 and 18+ people *(unless we're already friends , that's ok!) (or ur my friend's friend!)*
