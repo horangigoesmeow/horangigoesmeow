@@ -16,6 +16,7 @@
 - I LOVE GETTING COMPLEMENTED !! such as crowns and pretty!! *(as in pony..)*
 - currently rentry is outdated *(THAT THING IS SO OLD)* so i'll might make it later
 - i might have bpd *(took a quiz of it and i got 50-79..)* and bipolar too *(64-81..)* , adhd *(44-68)* , autism ... *(64-68)* ocd too haha... *(84-100)*
+- i have angry issue or passive aggression , if you made me upset or smth ur gnna get a silent treatment from me. sorry
 
 **INT PLS!!!**
 
