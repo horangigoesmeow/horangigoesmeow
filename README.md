@@ -34,6 +34,7 @@
 - ***residnet evil***
 - **dead plate**
 - *transformers*
+- ***call of duty*** *(heavily fixated)* ***mw2 mw 3!!*** *(gonna continue playing the others)*
 - ***i feakky forgot the others sm.hn,..h;...***
 
 **DO NOT INTERACT..**
